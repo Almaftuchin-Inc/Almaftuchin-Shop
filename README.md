@@ -1,4 +1,4 @@
 # Almaftuchin-Shop
 
-Buy digital items at low price!
-https://shop.almaftuchin.com
+Buy original license software for windows and mac at low price at:
+https://www.almaftuchin.com
